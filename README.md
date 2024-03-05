@@ -1,0 +1,2 @@
+# airdrophunter
+crypto is future 
